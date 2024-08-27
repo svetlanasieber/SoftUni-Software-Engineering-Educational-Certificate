@@ -1,1 +1,1 @@
-![fundamentals-in-mathematics](https://github.com/user-attachments/assets/6a1f01f8-ee7c-4f51-8112-72100eb5fb85)
+![math-fundamentals](https://github.com/user-attachments/assets/194c56ea-a398-47c6-8e5b-c6c27b907f04)
