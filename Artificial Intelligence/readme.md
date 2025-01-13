@@ -1,2 +1,1 @@
-
-![ai-module_facebook](https://github.com/user-attachments/assets/2dfb95c3-db75-4bd7-838b-7e86c9edd3c6)
+![Aritificial-Intelligence_facebook](https://github.com/user-attachments/assets/35c37f07-f745-4ea8-9b80-18306294a21d)
